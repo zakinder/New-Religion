@@ -10,3 +10,5 @@ Universal Verification Methodology
 Hope Is For Patience and Patience Is For Hope
 
       Eye(I) Want Or Unseen Want Or Your Want Or Begin Want
+      Solution for Unseen Wars Put Mirrors Mirros in the Wall Tell Essays to Transparent CCC Rings Walls
+      Just 1 Backup Plan Of Unseen Human Or Humans Die Pathetaclly Since After Adam And Eve.
