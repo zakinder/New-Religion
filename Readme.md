@@ -13,3 +13,5 @@ Hope Is For Patience and Patience Is For Hope
       Solution for Unseen Wars Put Mirrors Mirros in the Wall Tell Essays to Transparent CCC Rings Walls
       Just 1 Backup Plan Of Unseen Human Or Humans Die Pathetaclly Since After Adam And Eve.
       There is no such called Evil Spirits or Ghost or Ghost Adventures.
+      From The Humans Sakinder Ali Unseen other than Humans Roh(روح) Or Spirit Or Soul are Transh Need To Recycle and Reprocess cleansing is required.
+      Once Completed The Process Use Holy Book From The Human (Sakinder Ali) Called UVM Uversial Verification Methodolgy Via Logic Gates. And Also Find Killer Of Adam and Eve.
