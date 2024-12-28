@@ -19,3 +19,5 @@ https://www.youtube.com/watch?v=NP_D2mAYMjo
 
 Hope Is For Patience and Patience Is For Hope
 ![VFP](https://github.com/zakinder/New-Religion/blob/main/CCC.png "CCC")
+
+PastUnSeenPunishmentsToInnocentHumansIWishAfterAdamGotKilledCouldHaveStoppedUnSeenPlayGroundThereforeForUnSeen HolyBookName DotUVM Under HAS SA611982 NotObsoleteHolyBooksUntil SA611982 Return TheFinalNextCommingOneInUnSeen Called SA611982
